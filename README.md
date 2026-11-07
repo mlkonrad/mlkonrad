@@ -1,4 +1,4 @@
-### Hi, I'm Marlon K! 👋
+### Hi, I'm Marlon Konrad! 👋
 
 If you find my projects useful, you can support my work:
 
